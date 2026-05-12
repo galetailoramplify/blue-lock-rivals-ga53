@@ -1,4 +1,4 @@
-#  
+#  premium blue lock rivals Scripts offers the most advanced blue lock rivals Script, with infinite resources and anti-ban. Perfect for dominating any
 
 
 
